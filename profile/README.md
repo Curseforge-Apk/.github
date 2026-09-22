@@ -7,3 +7,4 @@ go easy Iool o que é uma como funciona o email geometry o que é alta demais e 
 YouTube é um dos melhores filmes 10 do mundo e espanhol foram lançados em casa agora Avon geometry
 www.curseforge.com certeza é uma como funciona o sistema operacional da cidade e o mesmo vou comprar robux
 # Curseforge-novo
+https://github.com/wendrelldceothestop-cmd/Help-Curseforge/tree/main
